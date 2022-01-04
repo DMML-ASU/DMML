@@ -1,1 +1,1 @@
-Please click on Wiki Tab for more info.
+Please click on Wiki tab for more info.
